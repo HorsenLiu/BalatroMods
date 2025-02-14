@@ -4,4 +4,4 @@
 
 链接在这里，包括了我自用的Mod：www。123865。com/s/scTKVv-nUEHh?提取码:wcss。
 
-移动端Mod可能需要修改适配，我自用的Mod清单详见：azrn3vujl1。feishu。cn/share/base/view/shrcnx94EDBXP4l0T1VXAoMPvIc
+我自用的Mod清单详见：azrn3vujl1。feishu。cn/share/base/view/shrcnx94EDBXP4l0T1VXAoMPvIc  
